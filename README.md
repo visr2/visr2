@@ -1,4 +1,4 @@
-Hello All
+Hello All<br>
 Israel2 is a new virtual state.<br>
 Israel2 is established as a result of the Israeli deep state and government's corruption.<br>
 The pioneers of Israel2 need to found the entire foundations of tne new state of Israel2.<br>
